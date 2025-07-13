@@ -1,1 +1,1 @@
-# koooora.live
+[Kooora Live](https://koooora.live/) stands out as the go-to platform for anyone looking to watch today’s matches live, offering a fast, smooth, and high-quality streaming experience. Whether you're following local Arab leagues or major international tournaments, Kooora Live provides complete coverage, ensuring you never miss a moment of the action.
